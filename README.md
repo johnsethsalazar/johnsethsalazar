@@ -1,1 +1,1 @@
-# its-john-seth
+# Hi there. John Seth here! 👋
